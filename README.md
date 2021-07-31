@@ -1,0 +1,1 @@
+Estou gostando do curso, apesar de as vezes ficar perdida no monte de conteúdo.
